@@ -1,0 +1,1 @@
+take two slices of bread, spread some mayonise, add lettuce, tomatoes and onions place a slice of bread on .Your vegetable sandwich is ready.
